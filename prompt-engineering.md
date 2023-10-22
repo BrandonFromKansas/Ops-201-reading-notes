@@ -41,7 +41,7 @@ The contractor will inspect and clean ventilation systems and ensure they are ad
 
 11. Turn On Gas Supply:
    * Once all safety checks and tests are successfully completed, the gas supply can be turned on to re-establish natural gas service.
-It's crucial to reiterate that gas-related work should only be performed by licensed professionals to ensure the safety of the homeowners and the community. If you need natural gas service for your residence, contact a certified gas service provider or utility company to handle the process.
+It's crucial to reiterate that gas-related work should only be performed by licensed professionals to ensure the safety of the homeowners and the community. If you need natural gas service for your residence, contact a certified gas service provider or utility company to handle this process.
 
 
 
